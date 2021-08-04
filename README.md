@@ -1,0 +1,1 @@
+O curso da Gama Academy tem sido muito bom e apesar de ser intenso, tem sido uma ótima oportunidade e só tenho a agradecer!
